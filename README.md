@@ -112,3 +112,7 @@ I'm not looking to get hired, I'm just here for the sillies! >.<
 <img width="45" height="18" alt="IMG_0318" src="https://github.com/user-attachments/assets/b0cb5d57-6819-4eff-8f10-a48f5f2e2ad6" />
 <img width="78" height="18" alt="IMG_0317" src="https://github.com/user-attachments/assets/8903cfec-b9e7-49bb-9ea4-3b2f7bcadb4c" />
 
+
+
+
+<img width="1079" height="59" alt="IMG_0705" src="https://github.com/user-attachments/assets/ce013e07-d931-48aa-9381-6cef0f199035" />
