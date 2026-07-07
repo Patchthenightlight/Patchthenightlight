@@ -1,7 +1,8 @@
 **SEVERE FLASH WARNING FOR THE BOTTOM OF MY BIO** 
 
 
-<img width="531" height="20" alt="IMG_0687" src="https://github.com/user-attachments/assets/d3e80ed4-c5db-4635-b307-a3e69aa933b7" />
+<img width="868" height="50" alt="IMG_0607" src="https://github.com/user-attachments/assets/2b1f0c20-cefb-4f27-b686-127930de4968" />
+
 
 
 
