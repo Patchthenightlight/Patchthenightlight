@@ -289,6 +289,27 @@ I'm not looking to get hired, I'm just here for the sillies! >.<
 <img width="150" height="20" alt="IMG_0778" src="https://github.com/user-attachments/assets/2ccbf889-0b85-481b-a415-e00b6d743935" />
 <img width="150" height="20" alt="IMG_0776" src="https://github.com/user-attachments/assets/987f712c-26cf-40e5-bafc-c77edc1663fc" />
 <img width="150" height="20" alt="IMG_0774" src="https://github.com/user-attachments/assets/13f3de2c-2060-4479-8114-70a05a4445dc" />
+<img width="150" height="20" alt="layoutfreak" src="https://github.com/user-attachments/assets/4156c462-a651-4534-8f72-30bdc8700c5e" />
+<img width="150" height="20" alt="artist" src="https://github.com/user-attachments/assets/e8283b1b-332f-44da-9cac-65557604e399" />
+<img width="150" height="20" alt="coolbeans" src="https://github.com/user-attachments/assets/e9c5f868-4943-49a3-9e6b-9a5ec8a443e4" />
+<img width="150" height="20" alt="fishing" src="https://github.com/user-attachments/assets/163e3925-a586-4157-bcff-7edbe145531b" />
+<img width="150" height="20" alt="sprites" src="https://github.com/user-attachments/assets/4fe3196e-2b22-4ed3-893d-adb1ac55b71b" />
+<img width="150" height="20" alt="sleepy" src="https://github.com/user-attachments/assets/2fcc26d4-fffb-4e43-be80-3c933da12b16" />
+<img width="150" height="20" alt="glitter" src="https://github.com/user-attachments/assets/38b05797-71dc-4a83-8dbb-86e9843be72f" />
+<img width="150" height="20" alt="darling" src="https://github.com/user-attachments/assets/d875acfa-3ee4-49cb-a9ce-3e9abab66f4c" />
+<img width="150" height="20" alt="d111" src="https://github.com/user-attachments/assets/9a4c3510-fb4f-4d19-8fc2-22747b926695" />
+<img width="150" height="20" alt="lovebug" src="https://github.com/user-attachments/assets/7cf41e85-e8f4-412c-a3e0-ce0de1a837db" />
+<img width="150" height="20" alt="loveme" src="https://github.com/user-attachments/assets/17e6319f-c9c9-4ef6-aba0-e9d0b7a59353" />
+<img width="150" height="20" alt="bemysweetheart" src="https://github.com/user-attachments/assets/8560b1cd-8568-434d-80b0-70e20150782e" />
+<img width="150" height="20" alt="chillinginbed" src="https://github.com/user-attachments/assets/c8ac6aa6-ca5b-460f-9a56-1718ed1c8b59" />
+<img width="150" height="20" alt="dishwashersafe" src="https://github.com/user-attachments/assets/fba1f313-9a5b-4adc-a0bb-d21032be2937" />
+<img width="150" height="20" alt="onthefloor" src="https://github.com/user-attachments/assets/afffe572-0899-4cc3-945d-ef96e60f43c2" />
+<img width="150" height="20" alt="sillystar" src="https://github.com/user-attachments/assets/1cea35d5-31b9-4e6b-b043-9b46654282fe" />
+<img width="150" height="20" alt="toosexy" src="https://github.com/user-attachments/assets/af8d9b00-5d72-4a0a-a27a-59ebd736394a" />
+<img width="150" height="20" alt="whore" src="https://github.com/user-attachments/assets/74729387-45ea-4fd5-9e3d-46d79951d3ed" />
+<img width="150" height="20" alt="linkinpark" src="https://github.com/user-attachments/assets/cca334b7-69ea-48da-a7e6-3ef709eadd58" />
+<img width="150" height="20" alt="alamode" src="https://github.com/user-attachments/assets/6c33d7ee-90f9-4879-abf6-45a90596799d" />
+<img width="150" height="25" alt="luckycharms" src="https://github.com/user-attachments/assets/e0d21a13-5363-431d-9e3d-5f542ebb7f2f" />
 
 
 
