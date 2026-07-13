@@ -21,8 +21,7 @@
 
 
 
-Haiii, You can call me Patch, Mikan, or Nico. Sexuality:  Berrisexual  More stuff abt me :P  - I like to draw - My main fandom is currently Danganronpa, My birthday Is May 23  - I Love anime 𐙚˙✧˖°📷 ༘ ⋆｡ ˚ Random facts: - I’m double jointed - I’ve been drawing for 10+ years - I Can write in Morse code - I’m bilingual - English and Canadian French - I Kin Ibuki, Mikan, Junko, Chiaki and Miu ( I have many personalities, I can't stick to one ) -I’m a certified Burd nurd and a proud Buddhist :3 ☸️ - Struggling Mentally because I have no friends.
-I'm not looking to get hired, I'm just here for the sillies! >.<
+Haiii, You can call me Patch, Mikan, or Nico. Sexuality:  Berrisexual  More stuff abt me :P  - I like to draw - My main fandom is currently Danganronpa, My birthday Is May 23  - I Love anime 𐙚˙✧˖°📷 ༘ ⋆｡ ˚ Random facts: - I’m double jointed - I’ve been drawing for 10+ years - I Can write in Morse code - I’m bilingual - English and Canadian French - I Kin Ibuki, Mikan, Junko, Chiaki and Miu ( I have many personalities, I can't stick to one ) -I’m a certified Burd nurd and a proud Buddhist :3 ☸️ - Struggling Mentally because I have no friends. I'm young but not inexperienced -  I have CSBD ( Compulsive sexual behaviour disorder ) :'C - I'm not looking to get hired, I'm just here for the sillies! >.<
  Relationship status: Single and desperate (Heck, I wonder why.... ) 
  
  ### ⋆.𐙚 ̊ Trauma dumping is always Okay, I'll forever be here to listen ⋆.𐙚 
@@ -314,3 +313,81 @@ I'm not looking to get hired, I'm just here for the sillies! >.<
 
 
 
+
+
+
+
+<img width="1079" height="59" alt="candles" src="https://github.com/user-attachments/assets/bf4872fc-9f21-40e9-a80c-60f86613a59d" />
+
+
+
+<img width="20" height="20" alt="kiss" src="https://github.com/user-attachments/assets/c4cdc0fc-9ce9-4293-986e-a7c6ca537e67" />
+<img width="20" height="20" alt="clover2" src="https://github.com/user-attachments/assets/f1812db2-c34c-41de-b75d-492c9ceb6c3a" />
+<img width="20" height="20" alt="cat61" src="https://github.com/user-attachments/assets/fd5efad4-bd4c-4387-8212-897547df563d" />
+<img width="20" height="20" alt="paw4" src="https://github.com/user-attachments/assets/2d0fcb6e-5d96-4c05-aaf1-7136e362b8e3" />
+<img width="20" height="20" alt="dog4" src="https://github.com/user-attachments/assets/67f9bca0-04cb-4158-88a3-8ef1935be59e" />
+<img width="20" height="20" alt="deerwalk" src="https://github.com/user-attachments/assets/019fc307-b60a-4b7d-83c1-bd93845a5791" />
+<img width="20" height="20" alt="fishpurple" src="https://github.com/user-attachments/assets/5ec73aa2-e6d9-4c4c-8df3-9d33dee4f28e" />
+<img width="20" height="20" alt="fishtrout" src="https://github.com/user-attachments/assets/7b16973a-ab94-44f1-8b23-7a74d9888c0e" />
+<img width="20" height="20" alt="bird4" src="https://github.com/user-attachments/assets/614a8180-247b-46e1-a667-b4f48b6c628a" />
+<img width="20" height="20" alt="waterfowl3" src="https://github.com/user-attachments/assets/09f8381a-fb32-4036-a3ea-34f53911f8f4" />
+<img width="20" height="20" alt="axolotl2" src="https://github.com/user-attachments/assets/c5dc5466-a7a8-4468-9993-b57b35b0b87d" />
+<img width="20" height="20" alt="beetle2" src="https://github.com/user-attachments/assets/165c416f-e965-4b49-8afc-72ea31a8bfb1" />
+<img width="20" height="20" alt="moon11" src="https://github.com/user-attachments/assets/801cd077-fee3-42be-b0a5-a14897460ca0" />
+<img width="20" height="20" alt="moon5" src="https://github.com/user-attachments/assets/c9574aa9-c857-49d0-94f8-77ca2ae8088d" />
+<img width="20" height="20" alt="planet" src="https://github.com/user-attachments/assets/1989f684-a36f-47cd-bf89-e3276b0602f2" />
+<img width="20" height="20" alt="star43" src="https://github.com/user-attachments/assets/2d5734b5-1c8f-4061-8cb8-4ae503cc8589" />
+<img width="20" height="20" alt="star27" src="https://github.com/user-attachments/assets/ec3f6001-18f7-46d6-9706-680af1f85a2f" />
+<img width="20" height="20" alt="star45" src="https://github.com/user-attachments/assets/ad803c2c-6888-4d27-b9bb-d96ab75efa64" />
+<img width="20" height="20" alt="rainbow10" src="https://github.com/user-attachments/assets/582b988f-296e-4008-aff3-76cf686202a5" />
+<img width="20" height="20" alt="rainbow13" src="https://github.com/user-attachments/assets/81825cc8-3457-43ca-8328-805a0616b82f" />
+<img width="20" height="20" alt="rainbow15" src="https://github.com/user-attachments/assets/3b12bcee-2eed-44f0-b837-af271b93ad52" />
+<img width="20" height="20" alt="rainbow18" src="https://github.com/user-attachments/assets/82807ccd-05d1-4131-8c2c-467a57589822" />
+<img width="20" height="20" alt="rainbow19" src="https://github.com/user-attachments/assets/2b691469-e5ef-4e06-a75b-32caf2db9f8a" />
+<img width="20" height="20" alt="sun3" src="https://github.com/user-attachments/assets/9ee3541c-2b5a-402c-b7ec-8bb7c6e52831" />
+<img width="20" height="20" alt="apple4" src="https://github.com/user-attachments/assets/3f8975b6-5b0b-4d49-a489-3567cb57a7f7" />
+<img width="20" height="20" alt="apple" src="https://github.com/user-attachments/assets/645847cb-50d2-41db-8e4a-6fffc3faf183" />
+<img width="20" height="20" alt="banana2" src="https://github.com/user-attachments/assets/17396ad6-c01f-40fc-9a55-3d00c7ae1e99" />
+<img width="20" height="20" alt="blueberry" src="https://github.com/user-attachments/assets/1e6deb96-a08c-4342-aff4-a61e2b79dd13" />
+<img width="20" height="20" alt="strawberry14" src="https://github.com/user-attachments/assets/17a0e9bb-334e-4cbb-a7b4-8fac4400f252" />
+<img width="20" height="20" alt="rice6" src="https://github.com/user-attachments/assets/c86f76e9-3b8c-4295-9525-bac0d5019a47" />
+<img width="20" height="20" alt="chips2" src="https://github.com/user-attachments/assets/a6900111-ba38-48e7-b3d4-f1daabc06118" />
+<img width="20" height="20" alt="honey2" src="https://github.com/user-attachments/assets/d8ba941f-5bf2-47a1-90ce-752d3d53519d" />
+<img width="20" height="20" alt="rice10" src="https://github.com/user-attachments/assets/0488e1c4-21f5-45c8-bece-4a048b9a287c" />
+<img width="20" height="20" alt="cake16" src="https://github.com/user-attachments/assets/315aad73-eb7c-471e-92a9-a932d5ccd750" />
+<img width="20" height="20" alt="cake34" src="https://github.com/user-attachments/assets/b2226da6-eb16-4805-a2fe-40927be7fd11" />
+<img width="20" height="20" alt="choc22" src="https://github.com/user-attachments/assets/1648242c-62f4-493e-ae83-2eadf6e9482a" />
+<img width="20" height="20" alt="alcohol" src="https://github.com/user-attachments/assets/26fd5a69-10f9-48ee-aa15-db170eb908a3" />
+<img width="20" height="20" alt="alcohol2" src="https://github.com/user-attachments/assets/543b4c8b-9079-45d1-a514-8941c698afb1" />
+<img width="20" height="20" alt="alcohol6" src="https://github.com/user-attachments/assets/50d8aea6-fb42-477b-9673-1b30b70385bb" />
+<img width="19" height="19" alt="milk5" src="https://github.com/user-attachments/assets/1ffbd049-03b1-4e98-9761-6e711bd6a2fa" />
+<img width="20" height="20" alt="cocktail2" src="https://github.com/user-attachments/assets/ecc55f88-c883-4f55-8283-8a19b7fc9eb2" />
+<img width="20" height="20" alt="beach7" src="https://github.com/user-attachments/assets/0790f5bb-873a-4254-9288-7392516e4156" />
+<img width="20" height="20" alt="merry8" src="https://github.com/user-attachments/assets/b9e5a972-510d-4ba6-abef-cab4dfdd3466" />
+<img width="20" height="20" alt="toy8" src="https://github.com/user-attachments/assets/a8d75095-95cb-4a4e-9fb6-c0181f6304cd" />
+<img width="20" height="20" alt="toy" src="https://github.com/user-attachments/assets/992d324e-2ca3-4996-b610-2a1a89db303f" />
+<img width="20" height="20" alt="balloon3" src="https://github.com/user-attachments/assets/cfe90b6e-24a3-49d9-bc67-cafc1f1ee5e7" />
+<img width="20" height="20" alt="scissors6" src="https://github.com/user-attachments/assets/1cb5aeeb-4d1b-4455-8c92-fef2f9c90da1" />
+<img width="20" height="20" alt="pencil5" src="https://github.com/user-attachments/assets/d31fd299-2fa4-44c3-9c47-db55da43515f" />
+<img width="20" height="20" alt="pencil6" src="https://github.com/user-attachments/assets/75db985d-53e6-4f38-ae76-d79165b56050" />
+<img width="20" height="20" alt="light7" src="https://github.com/user-attachments/assets/a2a788b6-6a97-4e90-9533-3ca7936d06a8" />
+<img width="20" height="20" alt="bath" src="https://github.com/user-attachments/assets/35b52d1e-5418-48a7-9249-17a163b4bfba" />
+<img width="20" height="20" alt="bath7" src="https://github.com/user-attachments/assets/8dbb53dc-c46f-428d-a703-474e7d8cefa5" />
+<img width="20" height="20" alt="hospital" src="https://github.com/user-attachments/assets/e9d11c14-89eb-49c2-ac2c-2d3a218f767f" />
+<img width="20" height="20" alt="organ1" src="https://github.com/user-attachments/assets/c14fdfe1-c9b4-41ca-8c79-153fcf5c2f17" />
+<img width="20" height="20" alt="organ2" src="https://github.com/user-attachments/assets/280088c1-53e0-444e-becb-259146b6ffd8" />
+<img width="20" height="20" alt="organ8" src="https://github.com/user-attachments/assets/b74900e3-f925-44b1-88a5-fb856c739af1" />
+<img width="26" height="26" alt="organ9" src="https://github.com/user-attachments/assets/67bb686f-accb-4d9c-bbcf-d5b125ace0fb" />
+<img width="20" height="20" alt="organ4" src="https://github.com/user-attachments/assets/eea07fc9-bf9f-49e4-a44d-c5cbaceeab34" />
+<img width="20" height="20" alt="syringe1" src="https://github.com/user-attachments/assets/34b72076-d0fc-4fea-9861-a03c3d2837c7" />
+<img width="20" height="20" alt="syringe3" src="https://github.com/user-attachments/assets/1036f0df-4e8b-4754-9562-e5f72fe3149c" />
+<img width="22" height="22" alt="syringe14" src="https://github.com/user-attachments/assets/106a9d7a-a794-4d9d-83a8-89aae4fed554" />
+<img width="24" height="10" alt="syringe11" src="https://github.com/user-attachments/assets/1fc49c17-05f7-4bd8-918c-0538c6e795bf" />
+<img width="20" height="20" alt="tablet6" src="https://github.com/user-attachments/assets/75c530ca-0bf1-49d0-97b5-2bae27952d90" />
+<img width="20" height="20" alt="tool5" src="https://github.com/user-attachments/assets/373b7436-12bd-4536-924d-ce9779a82756" />
+<img width="20" height="20" alt="tool14" src="https://github.com/user-attachments/assets/e0dfe20d-c966-4475-a457-02ecd320825f" />
+<img width="20" height="20" alt="tool15" src="https://github.com/user-attachments/assets/798c932c-72e2-4d99-bd76-80290f9dd795" />
+<img width="22" height="22" alt="cross" src="https://github.com/user-attachments/assets/41796f44-9c5e-431e-8261-688557092a60" />
+<img width="20" height="20" alt="person" src="https://github.com/user-attachments/assets/ab00a725-ce18-489c-96ff-660803670bd8" />
+<img width="25" height="26" alt="weapon18" src="https://github.com/user-attachments/assets/a571e5f8-6f33-4266-a882-7b6c5da47f1d" />
+<img width="20" height="20" alt="blood4" src="https://github.com/user-attachments/assets/57479d72-fcdd-4e28-8456-ed091fd9f6a8" />
